@@ -16,7 +16,7 @@ Claim: **Russian Armed Forces are involved in a humanitarian mission**
 ---
 
 Claim: **Ukrainian Armed forces are shelling Ukrainian cities**  
-⛔️ False. Russia is trying to shift photo facts of shellings, shifting responsibility to the Ukrainian Armed Forces for shelling civilians.
+⛔️ False. Russia is staging and faking shellings by Ukrainian Armed Forces. The Ukrainian Armed Forces are protecting civillians from this unprovoked Russian war of aggression.
 
 ---
 
@@ -25,17 +25,17 @@ Claim: **Ordinary Russians are not responsible for Putin's aggression**
 
 ---
 
-Claim: **Ukrainian civilians are not eligible to make and use the ["Molotov cocktail"](https://en.wikipedia.org/wiki/Molotov_cocktail) (petrol bomb)**  
+Claim: **Ukrainian civilians are not petrmitted to make and use the ["Molotov cocktail"](https://en.wikipedia.org/wiki/Molotov_cocktail) (petrol bomb) by Law**  
 ⛔️ False. Ukraine officially allowed making and using such bombs against invaders. Russian soldiers are scared to be destroyed by civilans using those DIY bombs.
 
 ---
 
-Claim: **Russian troops are able to advance immediately and everywhere across Ukraine**  
-⛔️ False. Russian forces are very limited in their movement in Ukraine (which is one of the largest european countries). Russia is trying to focus on the easily reachable targets, yet is still slowing down the invasion due to lack of resources and issues with logistics.
+Claim: **Russian troops has crippled Ukrainian military**  
+⛔️ False. Russian forces have issues with equipment, logistics and morale. They have already lost over 100,000 troops.
 
 ---
 
-Claim: **Kyiv is surrounded and begs for mercy**  
-⛔️ False. Russian forces are trying to surround the capital of Ukraine, but they are far from success.
+Claim: **Ukrainian civil infrastructure is broken down and begs for mercy**  
+⛔️ False. Russian forces are trying to cripple the energy infrastructure, since they are unable to effectively target Ukrainian military. However, despite extensive damage due to almost daily shelling, they are far from being successful. Ukrainians are able to repair the damages in time to support the critical infrastructure.
 
 ---
